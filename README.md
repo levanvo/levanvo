@@ -1,1 +1,1 @@
-<img src="[https://antimatter.vn/wp-content/uploads/2022/06/hinh-anh-dong-de-thuong.gif](https://cdn.brvn.vn/editor_news/2012/09/hinhanhdong2-ID367.gif)https://cdn.brvn.vn/editor_news/2012/09/hinhanhdong2-ID367.gif">
+<img src="https://cdn.brvn.vn/editor_news/2012/09/hinhanhdong2-ID367.gif">
